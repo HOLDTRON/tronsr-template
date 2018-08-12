@@ -7,7 +7,7 @@
 
 
 
-*Below is my social media presence and website details
+Below is my social media presence and website details
 
 
 
