@@ -1,14 +1,12 @@
 ## Founder
 
-Name: [name]
-Role: [role]
+Name: @Mastermiwe
+Role: Inversión de tron fundation que impulsara a nuevos compradores de $ TRON
 
-## Team Member 1
+Below is my social media presence and website details
 
-Name: [name]
-Role: [role]
-
-## Team Member 2
-
-Name: [name]
-Role: [role]
+Twitter : https://twitter.com/HOLDTRON2
+Twitter : https://twitter.com/Mastermiwe
+Telegram : https://t.me/joinchat/AAAAAELna-Tr970jzfRADg
+Youtube : 
+Website : 
