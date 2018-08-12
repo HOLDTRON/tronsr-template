@@ -1,11 +1,14 @@
 ## Founder
 
-<*>Name: TRONHOLD
+*Name: TRONHOLD
 
-<*>Role: Tron foundation investor that drives new buyers of TRON
+
+*Role: Tron foundation investor that drives new buyers of TRON
+
 
 
 *Below is my social media presence and website details
+
 
 
 *Twitter : https://twitter.com/HOLDTRON2
