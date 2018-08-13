@@ -11,10 +11,16 @@ Below is my social media presence and website details
 
 
 
-*Twitter : https://twitter.com/HOLDTRON2
+* https://t.me/joinchat/F5QrYU9C8y-nAN2w0M327Q JOIN NOW ! GROUP TELEGRAM
 
-*Twitter : https://twitter.com/Mastermiwe
+* https://t.me/joinchat/AAAAAELna-Tr970jzfRADg Channel #HOLDTRON
 
-*Telegram : https://t.me/joinchat/AAAAAELna-Tr970jzfRADg
+* https://maicolhotmail20.wixsite.com/holdtron Web site #HOLDTRON
 
+* https://twitter.com/HOLDTRON2 Twitter
 
+* https://twitter.com/Mastermiwe Twitter
+
+Contact telegram: @mastermiwe
+
+WELCOME NEW MEMBERS <3
