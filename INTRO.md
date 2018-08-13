@@ -9,9 +9,21 @@ We are not a company that seeks to profit from your profits nor do we intend to 
 
 * If you are one of them I invite you to join us 
 
-https://t.me/joinchat/F5QrYU9C8y-nAN2w0M327Q   JOIN NOW Telegram !
+
+* https://t.me/joinchat/F5QrYU9C8y-nAN2w0M327Q JOIN NOW ! GROUP TELEGRAM
+
+* https://t.me/joinchat/AAAAAELna-Tr970jzfRADg Channel #HOLDTRON
+
+* https://maicolhotmail20.wixsite.com/holdtron Web site #HOLDTRON
+
+* https://twitter.com/HOLDTRON2 Twitter
+
+* https://twitter.com/Mastermiwe Twitter
 
 
-https://twitter.com/HOLDTRON2  Twitter
+* Contact telegram: @mastermiwe 
 
-https://maicolhotmail20.wixsite.com/holdtron  Web site
+
+WELCOME NEW MEMBERS <3  
+
+
