@@ -1,26 +1,32 @@
 ## Founder
 
-*Name: TRONHOLD
+* Name: TRONHOLD
 
+* Role: Long-term investor, trainer of new Investors.
 
-*Role: Tron foundation investor that drives new buyers of TRON
+## TEAM 1
+* TELEGRAM TEAM IN SPANISH
 
+Admin : @Genesislia  ## Lia
+Admin : @jtbxu       ## José
+Admin : @@HomeFree   ## Unbeliever Guerreros
 
+* JOIN NOW https://t.me/joinchat/F5QrYU9C8y-nAN2w0M327Q
 
-Below is my social media presence and website details
+## TEAM 2
 
+* TELEGRAM TEAM IN ENGLISH
 
+Admin : @Mastermiwe   ## MIWE
+Admin : @Win5mi       ## PEDRO
+* JOIN NOW https://t.me/joinchat/F5QrYUblncUKJ9cIa_qOUA
 
-* https://t.me/joinchat/F5QrYU9C8y-nAN2w0M327Q JOIN NOW ! GROUP TELEGRAM
+## Official telegram channel HOLDTRON
 
 * https://t.me/joinchat/AAAAAELna-Tr970jzfRADg Channel #HOLDTRON
 
+## Standard website
 * https://maicolhotmail20.wixsite.com/holdtron Web site #HOLDTRON
 
-* https://twitter.com/HOLDTRON2 Twitter
 
-* https://twitter.com/Mastermiwe Twitter
-
-Contact telegram: @mastermiwe
-
-WELCOME NEW MEMBERS <3
+## MASTER ADMIN  @MASTERMIWE
