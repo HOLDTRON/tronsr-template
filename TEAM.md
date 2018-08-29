@@ -17,7 +17,7 @@
 
 ## Official telegram channel HOLDTRON
 
-* https://t.me/joinchat/AAAAAELna-Tr970jzfRADg Channel #HOLDTRON
+* https://t.me/joinchat/AAAAAELna-Tr970jzfRADg 
 
-## Standard website
-* https://maicolhotmail20.wixsite.com/holdtron Web site #HOLDTRON
+##  Website
+* https://maicolhotmail20.wixsite.com/holdtron 
