@@ -1,9 +1,23 @@
-* HOLDTRON will send 75% of trx to its voters every Sunday of the week at 04:00 am UTC ..
+## HOLDTRON Super Representative Distribution of Tokens
 
-* 15% will be bonificateto the participants of the groups of telegram HOLDTRON.
-there will be made improvised raffles to encourage the community, also will reward the investor who contributes with news and projects to the community HOLDTRON.
+90% - Community Rewards
 
-* 10% will be used for administrative expenses.
+10% - Systems Services Contracts and Hardware and Upgrade Expenditures
 
+100% - Total Funds Allocation
+
+
+* Payments will be sent automatically every weekend:
+(SUNDAY 04:00 UTC)
+
+* 1,000,000 votes = 100 trx per day x7 = 700 trx weekly
+
+* 100,000 votes = 10 trx per day x7 = 70 trx weekly
+
+* 10,000 votes = 1 trx per day x7 = 7 trx weekly
+
+* If you are one of the faithful voters to hold, you will obtain greater benefits throughout our career.
+
+## Do not forget '' TRON 1 $ '' very soon.
 
 
