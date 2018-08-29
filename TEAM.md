@@ -4,25 +4,14 @@
 
 * Role: Long-term investor, trainer of new Investors.
 
-## TEAM 1
+## TELEGRAM GROUPS
+
 * TELEGRAM TEAM IN SPANISH
-
-*Admin : @Genesislia  Lia
-
-*Admin : @jtbxu       José
-
-*Admin : @HomeFree   Unbeliever Guerreros
-
 
 * JOIN NOW https://t.me/joinchat/F5QrYU9C8y-nAN2w0M327Q
 
-## TEAM 2
 
 * TELEGRAM TEAM IN ENGLISH
-
-*Admin : @Mastermiwe    MIWE
-
-*Admin : @Win5mi        PEDRO
 
 * JOIN NOW https://t.me/joinchat/F5QrYUblncUKJ9cIa_qOUA
 
