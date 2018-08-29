@@ -16,7 +16,7 @@
 
 * 10,000 votes = 1 trx per day x7 = 7 trx weekly
 
-* If you are one of the faithful voters to hold, you will obtain greater benefits throughout our career.
+* If you are one of the faithful voters hold, you will obtain greater benefits throughout our career.
 
 ## Do not forget '' TRON 1 $ '' very soon.
 
